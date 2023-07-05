@@ -1,4 +1,4 @@
 Всем привет!
 Меня зовут Александр и я обучаюсь в Нетологии.
 
-![Гепард](5000x3333_0xac120003_16811102131673473508.jpeg)
+![Гепард](https://www.kartinki24.ru/kartinki/gepardy/14143-gepard-krasivaya-hischnaya-koshka.html)
