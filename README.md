@@ -3,4 +3,4 @@
 
 ![Гепард][def]
 
-[def]: https://www.kartinki24.ru/kartinki/gepardy/14143-gepard-krasivaya-hischnaya-koshka.html
+[def]: https://www.kartinki24.ru/uploads/gallery/main/423/gepard-krasivaya-hischnaya-koshka.jpg
